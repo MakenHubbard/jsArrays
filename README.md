@@ -1,0 +1,1 @@
+#Why is the sun make people happy? Because everytime we see it we get Arrays
